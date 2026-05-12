@@ -1,4 +1,4 @@
-# 
+# exclusive Pixelmator Pro for macOS Action | layer styles + batch processing is the best Pixelmator Pro for macOS action, featuring layer styles and batch processing. Safe,
 
 
 
